@@ -1,0 +1,1 @@
+# samsung-technical-1
